@@ -1,5 +1,4 @@
 # ABOUT-UNIQUE-PROJECTS
-
 ## 📌 IMPORTANT INFORMATION
 
 Hey everyone,
